@@ -1,8 +1,5 @@
 -  Hi, I’m fishysyxx
--  I make cheats for counter strike 2 
--  I’m currently learning C++ and PY
--  How to reach me
--  Pronouns: he/him
+-  stop stalking me gael, kingston, and other creeps
 
 
 <!---
